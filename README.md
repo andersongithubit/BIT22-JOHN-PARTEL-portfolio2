@@ -1,0 +1,1 @@
+# BIT22-JOHN-PARTEL-portfolio2
